@@ -1,0 +1,1 @@
+Finalizando em 03/12/2020.
